@@ -1,5 +1,5 @@
 # 💫 About Me:
-just a gym nerd with kik bit of coding skills
+just a gym nerd with lil bit of coding skills
 
 
 ## 🌐 Socials:
