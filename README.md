@@ -1,6 +1,6 @@
 # 💫 About Me:
-17 y.o , still in highshool
-Working at Pokktan Id, Earrings -
+17 y.o , still in highshool <br>
+Working at Pokktan Id, Earrings - <br>
 Founder : JSONPilot, VepyBot
 
 
