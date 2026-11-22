@@ -1,5 +1,7 @@
 # 💫 About Me:
-just a gym nerd with lil bit of coding skills
+17 y.o , still in highshool
+Working at Pokktan Id, Earrings -
+Founder : JSONPilot, VepyBot
 
 
 ## 🌐 Socials:
